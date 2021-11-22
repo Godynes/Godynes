@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ Godynes
+- 👀 I’m interested in em aprender programação   
+- 🌱 I’m currently  me aprofundando  em desenvolvimento  de codigos 
+- 💞️ I’m looking to collaborate on aonde for nescessario  
+ - 📫 How to reach me? podera em contactar por Gmail (godynes892@gmail.com)
+ - Sou novo, quero apenas aprender  !
